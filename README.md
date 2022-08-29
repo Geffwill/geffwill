@@ -1,4 +1,4 @@
-### Hi there ! Sou Geffersom William e busco minha primeira oportundade dev jr
+### Hi there ! Sou Geffersom William!!!
 
 <!--
 - 🔭 I’ estudo a cerca de 2 anod
