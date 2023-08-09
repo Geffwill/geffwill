@@ -1,4 +1,4 @@
-### Oiii eu sou o Geffersom William, Dev!!!!
+### Oiii eu sou o Dev Geffersom William!!!!
 - 🤔 I look for development opportunities
 <!--
 - 🔭 I’ estudo a cerca de 2 anod
