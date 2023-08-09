@@ -1,10 +1,9 @@
 ### Hi there ! Sou Geffersom William!!!
-
+- 🤔 I look for development opportunities
 <!--
 - 🔭 I’ estudo a cerca de 2 anod
 - 🌱 I’m currently  estudando
 - 👯 I’m looking to  estágio
-- 🤔 I’m looking for  oportunidades Jr
 -->
 
 
