@@ -1,7 +1,7 @@
 ### Oiii eu sou o Dev Geffersom William!!!!
-- 🤔 I look for development opportunities
+- 👩‍💻 Don't ask me if I can do it, just give me the mission!
 <!--
-- 🔭 I’ estudo a cerca de 2 anod
+- 📚 I’ estudo a cerca de 3 anod
 - 🌱 I’m currently  estudando
 - 👯 I’m looking to  estágio
 -->
